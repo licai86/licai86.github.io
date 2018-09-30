@@ -1,12 +1,7 @@
-换位思考，不再轻易指责任何人
-
-百度聚合 2016-05-26
-
-
 
 换位思考，不再轻易指责任何人
 
-More info: [百度聚合](https://m.baidu.com/sf/headline/?urikey=http%3A%2F%2Fm.201980.com%2Fzhupao80%2Fweiren%2F16744.html&title=%E6%8D%A2%E4%BD%8D%E6%80%9D%E8%80%83%2C%E4%B8%8D%E5%86%8D%E8%BD%BB%E6%98%93%E6%8C%87%E8%B4%A3%E4%BB%BB%E4%BD%95%E4%BA%BA&pd=inspire_res&ext=%7B%22frame_only%22%3A1%2C%22srcid%22%3A%2228341%22%7D&word=%E6%8D%A2%E4%BD%8D%E6%80%9D%E8%80%83%E7%9A%84%E5%9B%BE%E7%89%87&lid=10130600519611690934&ms=1&frsrcid=28341&frorder=14&from=timeline)
+More info: 2016-05-26  [百度聚合](https://m.baidu.com/sf/headline/?urikey=http%3A%2F%2Fm.201980.com%2Fzhupao80%2Fweiren%2F16744.html&title=%E6%8D%A2%E4%BD%8D%E6%80%9D%E8%80%83%2C%E4%B8%8D%E5%86%8D%E8%BD%BB%E6%98%93%E6%8C%87%E8%B4%A3%E4%BB%BB%E4%BD%95%E4%BA%BA&pd=inspire_res&ext=%7B%22frame_only%22%3A1%2C%22srcid%22%3A%2228341%22%7D&word=%E6%8D%A2%E4%BD%8D%E6%80%9D%E8%80%83%E7%9A%84%E5%9B%BE%E7%89%87&lid=10130600519611690934&ms=1&frsrcid=28341&frorder=14&from=timeline)
 
 手术的电话后，以最快的速度赶到医院并换上手术服，男孩的父亲失控地对他喊道：“你怎么这么晚才来？你难道不知道我儿子正处在危险中吗？你怎么一点责任心都没有。”
 
